@@ -63,6 +63,7 @@ How well you feel emotionally and psychologically
   - [Cope with Anxiety about Coronavirus](https://www.verywellmind.com/managing-coronavirus-anxiety-4798909)
   - [Anxiety Social Network](http://www.anxietysocialnet.com/)
   - [38 Awesome Tips & Tricks How to Stop Feeling Anxious Right Now](https://allremedies.com/how-to-stop-feeling-anxious/)
+  - [Loneliness statistics - understanding workplace anxiety in the 'new normal'](https://www.fingerprintforsuccess.com/blog/workplace-anxiety-loneliness-statistics)
   - [Surprising ways to beat anxiety and become mentally strong – according to science](https://theconversation.com/surprising-ways-to-beat-anxiety-and-become-mentally-strong-according-to-science-77978)
   - [When in Doubt, Shout It Out! 8 Drug-Free Ways to Battle Anxiety](https://www.healthline.com/health/effective-ways-to-fight-anxiety-without-drugs#1)
 - **Expressing Emotions**
